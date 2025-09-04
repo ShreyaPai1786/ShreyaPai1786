@@ -1,7 +1,7 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif) My name is Shreya Pai
 ===================================================================================================================================
 
-Business Analyst/Data Analyst/Finance Analyst
+Junior Business Analyst/Data Analyst/Finance Analyst
 ---------------------------------------------
 
 I bring over a decade of experience across customer service, banking operations, financial administration, and community-focused volunteering, with a strong background in both the banking and non-profit sectors.
